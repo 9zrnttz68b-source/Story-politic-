@@ -16,7 +16,7 @@ J'ai passé la nuit avec les noms. Nino m'avait préparé une liste — il avait
 
 Et il y avait Demetrio. Mon cousin, mon couteau, le seul vrai Bindang à ses propres yeux, qui attend depuis des mois que je flanche pour murmurer aux affamés que le demi-Bubi ne sait plus nourrir. La porte C était faite pour lui. Je pouvais le nommer, saisir ses océans, le briser sous le mot Probité. C'était tentant comme un précipice.
 
-Je ne l'ai pas fait. Pas encore. Nommer Demetrio, c'est la guerre au grand jour, et la guerre au grand jour, contre l'homme qui commande la garde, c'est précisément la nuit où De Wet se penche au-dessus de mon lit pour voir si je respire encore. Non. J'ai fait plus froid, donc plus cruel. J'ai pris deux magnats — Cándido Oyono, le roi du ciment et des marchés truqués, et Régulo Mensah, qui importe tout ce que le pays mange et le revend trois fois son prix — et j'ai ajouté, au milieu d'eux, comme par hasard, comme une virgule, **un colonel de Demetrio.** Pas Demetrio. Un de ses hommes. Une main de sa main.
+Je ne l'ai pas fait. Pas encore. Nommer Demetrio, c'est la guerre au grand jour, et la guerre au grand jour, contre l'homme qui commande la garde, c'est précisément la nuit où Lemos se penche au-dessus de mon lit pour voir si je respire encore. Non. J'ai fait plus froid, donc plus cruel. J'ai pris deux magnats — Cándido Oyono, le roi du ciment et des marchés truqués, et Régulo Mensah, qui importe tout ce que le pays mange et le revend trois fois son prix — et j'ai ajouté, au milieu d'eux, comme par hasard, comme une virgule, **un colonel de Demetrio.** Pas Demetrio. Un de ses hommes. Une main de sa main.
 
 Comme ça, le cousin recevrait, à l'aube, le seul message qui compte entre deux fauves : *je peux atteindre les tiens, et je ne t'ai pas touché. Pas aujourd'hui. À toi de comprendre si c'est de la clémence ou un premier pas.* Et je le regarderais. Toute la suite tiendrait dans sa réaction. S'il pliait, je l'aurais soumis sans le briser. S'il frappait, il se découvrirait, et j'aurais ma raison de le nommer à mon tour. La loi n'était pas une loi. C'était un appât, posé sur l'eau, et je tenais la ligne.
 
@@ -46,20 +46,20 @@ Je l'attendais furieux, ou glacé, ou suppliant pour son colonel. Il est arrivé
 
 Nous avons souri tous les deux, longtemps, deux Bindang dans une pièce, chacun cherchant sur le visage de l'autre le froid de l'oncle, et le trouvant. C'est une chose étrange que de reconnaître son propre venin dans le sang d'un autre. Pendant un instant — un seul — je l'ai presque aimé. Puis il a mordu dans une mangue de sa finca, lentement, en me regardant, et l'instant est passé.
 
-Quand il est sorti, De Wet était dans le couloir. Mon contractant ne dit jamais rien d'inutile ; il était simplement là, où il n'avait pas de raison d'être, et c'était le message : *les choses bougent, monsieur le Président, et je veille — sur vous, ou sur l'occasion, selon ce que vous me paierez le mois prochain.* Or le mois prochain, justement, l'argent serait court. La porte C remplit les coffres — mais pas avant des semaines, le temps que les saisies se liquident. Entre-temps, il y a un creux. Et dans ce creux, l'homme qui me protège et l'homme qui me hait respirent le même air.
+Quand il est sorti, Lemos était dans le couloir. Mon contractant ne dit jamais rien d'inutile ; il était simplement là, où il n'avait pas de raison d'être, et c'était le message : *les choses bougent, monsieur le Président, et je veille — sur vous, ou sur l'occasion, selon ce que vous me paierez le mois prochain.* Or le mois prochain, justement, l'argent serait court. La porte C remplit les coffres — mais pas avant des semaines, le temps que les saisies se liquident. Entre-temps, il y a un creux. Et dans ce creux, l'homme qui me protège et l'homme qui me hait respirent le même air.
 
 J'avais ouvert la plus belle porte. Derrière, comme je m'y attendais, il y avait l'argent, et le pouvoir, et la peur qui travaille seule. Mais il y avait aussi, que je n'avais pas assez pesé, ce couloir : un cousin qui venait de me montrer ma mère du bout d'une phrase, et un mercenaire qui attendait de savoir si j'étais encore solvable. J'avais soumis le pays. Je n'avais pas encore décidé quoi faire des deux seuls hommes que la peur ne suffit pas à tenir : celui qu'on ne peut pas acheter parce qu'il est déjà payé pour me garder, et celui qu'on ne peut pas effrayer parce qu'il a le même froid que moi.
 
 > **CHOIX — la première fissure**
-> *La loi est lancée, le pays a compris, Demetrio a montré ses dents en montrant ma mère, et le creux de trésorerie rapproche De Wet du bord. Que fais-je, maintenant, de cette nuit suspendue ?*
+> *La loi est lancée, le pays a compris, Demetrio a montré ses dents en montrant ma mère, et le creux de trésorerie rapproche Lemos du bord. Que fais-je, maintenant, de cette nuit suspendue ?*
 >
-> **① Sécuriser De Wet d'abord — l'argent.** Trouver, hors caisse, par Shen ou par un compte que Sorel sait faire apparaître, de quoi payer le contractant en avance, double, pour blinder ma propre nuit. *(El Crudo/finances : ↓ — je m'endette ou je m'ouvre à Shen. Mais La Sangre/ma survie immédiate : sécurisée. Reconnaître que ma vie tient à un virement est une humiliation que seul moi connaîtrai.)*
+> **① Sécuriser Lemos d'abord — l'argent.** Trouver, hors caisse, par Liang ou par un compte que Sorel sait faire apparaître, de quoi payer le contractant en avance, double, pour blinder ma propre nuit. *(El Crudo/finances : ↓ — je m'endette ou je m'ouvre à Liang. Mais La Sangre/ma survie immédiate : sécurisée. Reconnaître que ma vie tient à un virement est une humiliation que seul moi connaîtrai.)*
 >
-> **② Répondre à Demetrio sur son terrain — la mère.** Mettre, discrètement, l'île et la maison de cacao sous une garde qui ne dépend ni de lui ni de De Wet — des hommes à moi, des Bubi peut-être, Eusebio comme relais. Protéger mon point tendre avant qu'il ne devienne mon point mort. *(La Madre : ↑ — je m'occupe enfin d'elle, fût-ce par calcul. Mais armer l'île, c'est y réveiller quelque chose ; et avouer à Demetrio que j'ai un point tendre en le protégeant.)*
+> **② Répondre à Demetrio sur son terrain — la mère.** Mettre, discrètement, l'île et la maison de cacao sous une garde qui ne dépend ni de lui ni de Lemos — des hommes à moi, des Bubi peut-être, Eusebio comme relais. Protéger mon point tendre avant qu'il ne devienne mon point mort. *(La Madre : ↑ — je m'occupe enfin d'elle, fût-ce par calcul. Mais armer l'île, c'est y réveiller quelque chose ; et avouer à Demetrio que j'ai un point tendre en le protégeant.)*
 >
-> **③ Pousser l'appât plus loin — provoquer Demetrio.** Faire « fuiter » que le colonel parle, que les saisies remontent une filière, que le prochain nom pourrait être plus haut. Le forcer à frapper le premier, dans la panique, pour le découvrir et avoir ma raison. *(El Faro/maîtrise : ↑ si je gagne ; La Sangre : ↓↓ — je joue à qui dégaine, et De Wet regarde lequel de nous deux tombe. La Maldición : ↑↑. C'est le coup du Vieux, jusqu'au bout.)*
+> **③ Pousser l'appât plus loin — provoquer Demetrio.** Faire « fuiter » que le colonel parle, que les saisies remontent une filière, que le prochain nom pourrait être plus haut. Le forcer à frapper le premier, dans la panique, pour le découvrir et avoir ma raison. *(El Faro/maîtrise : ↑ si je gagne ; La Sangre : ↓↓ — je joue à qui dégaine, et Lemos regarde lequel de nous deux tombe. La Maldición : ↑↑. C'est le coup du Vieux, jusqu'au bout.)*
 >
-> **④ Le froid, et rien.** Ne rien faire cette nuit. Laisser mûrir. Tenir les trois balles en l'air — De Wet, Demetrio, la caisse — et dormir, ou faire semblant, en pariant que celui qui bouge en premier dans le noir se désignera. *(Sang-froid pur. Le plus « lui ». Mais une balle, en l'air, finit toujours par retomber sur quelqu'un — et je ne choisirai pas sur qui.)*
+> **④ Le froid, et rien.** Ne rien faire cette nuit. Laisser mûrir. Tenir les trois balles en l'air — Lemos, Demetrio, la caisse — et dormir, ou faire semblant, en pariant que celui qui bouge en premier dans le noir se désignera. *(Sang-froid pur. Le plus « lui ». Mais une balle, en l'air, finit toujours par retomber sur quelqu'un — et je ne choisirai pas sur qui.)*
 >
 > *— Dis-moi (① ② ③ ④), et le chapitre 4 s'écrit sur cette nuit. Ou je tranche en auteur.*
 
@@ -77,14 +77,14 @@ J'ai regardé la corbeille de fruits que Demetrio avait laissée. Une mangue man
 | **La Sangre** | **fracturée** | guerre froide ouverte avec Demetrio ; un colonel pris en otage juridique |
 | **El Faro** (respectabilité) | **↑** | Plácido a marqué des points : « première fissure d'ouverture » |
 | **La Isla / la Madre** | **menacée nommément** | Demetrio a montré la mère du bout d'une phrase |
-| **El Cuerpo** | tendu | la nuit suspendue, De Wet dans le couloir |
+| **El Cuerpo** | tendu | la nuit suspendue, Lemos dans le couloir |
 | **La Madre** (part humaine) | **basse** | « le confort du froid » — il ne vérifie même plus |
 | **La Maldición** *(cachée)* | **haute** | « un homme qui se méfie d'une mangue est déjà à moitié son oncle » |
 
 **Fils tendus :**
 - **Demetrio** : l'a payé en monnaie de mère ; partie longue engagée.
-- **De Wet** : le creux de trésorerie le met « au bord » ; sa loyauté est désormais une question de calendrier.
-- **Shen / Sorel** : les deux seules sources pour combler le creux — chacune a un prix d'âme.
+- **Lemos** : le creux de trésorerie le met « au bord » ; sa loyauté est désormais une question de calendrier.
+- **Liang / Sorel** : les deux seules sources pour combler le creux — chacune a un prix d'âme.
 - **Le colonel saisi** : otage juridique ; parlera-t-il ? le faire parler (vrai ou faux) est une arme.
 - **La mangue à l'analyse** : la paranoïa entre en scène — premier symptôme clinique du Vieux.
 

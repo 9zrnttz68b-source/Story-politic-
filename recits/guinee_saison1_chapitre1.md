@@ -87,14 +87,14 @@ Nino attendait. Quelque part, Demetrio attendait. Le trimestre, lui, n'attendait
 > **① LE GESTE — où je coupe :**
 > - **Couper le clan.** Réduire les enveloppes des généraux et des cousins. Leur faire sentir, à eux, la fin du second soleil. *(Courage rare ; mais La Sangre s'effondre, et Demetrio tient enfin son levier. C'est la décision d'un homme d'État — ou d'un suicidé.)*
 > - **Couper le peuple.** Rogner les subventions, le riz, le carburant. La rue gronderait, l'île la première. *(El Crudo tient, La Sangre tient ; La Madre s'effondre, et la jeunesse bubi — celle qui filme, qui n'a pas connu le Vieux — trouve sa fenêtre.)*
-> - **Ne couper personne — emprunter à l'Est.** Faire venir l'homme de Pékin, hypothéquer un baril qui n'a pas encore jailli, payer toutes les enveloppes avec de la dette. *(Rien ne crie ce trimestre. Mais Shen sourit, et chaque sourire de Shen est une marche de plus dans sa main. La Maldición cachée frémit : on ne sent pas le froid d'une chaîne qu'on choisit soi-même.)*
+> - **Ne couper personne — emprunter à l'Est.** Faire venir l'homme de Pékin, hypothéquer un baril qui n'a pas encore jailli, payer toutes les enveloppes avec de la dette. *(Rien ne crie ce trimestre. Mais Liang sourit, et chaque sourire de Liang est une marche de plus dans sa main. La Maldición cachée frémit : on ne sent pas le froid d'une chaîne qu'on choisit soi-même.)*
 >
 > **② AU NOM DE QUEL VISAGE je le fais :**
 > - **el Presidente** — je l'habille en réforme, en « rationalisation », en mots pour Madrid et pour les bailleurs : l'homme moderne qui assainit. *(El Faro / la respectabilité montent ; mais les miens flairent la peur derrière les mots propres.)*
 > - **el Patriarca** — je convoque les chefs, je partage la douleur en famille, je demande un sacrifice « entre nous » au nom du sang : *(La Sangre peut tenir si je trouve les mots ; mais j'admets devant le clan que la caisse se vide.)*
 > - **el Heredero del Viejo** — je ne m'explique pas. Je coupe, et je laisse courir, sans le démentir, le vieux bruit que mon oncle veille encore et n'aime pas les ingrats. *(La peur paie tout, tout de suite. Et tout de suite, je suis un peu plus lui. La Maldición monte.)*
 >
-> **③ PAR QUEL CANAL** — Nino le ministre (la version froide et vraie) · Demetrio le cousin (la version brutale, qui me coûtera) · l'évêque, qui peut bénir une austérité et endormir l'île · De Wet, mon contractant, dont la seule présence à mes côtés est déjà une menace adressée à ceux que je prive · ou moi-même, montant enfin à la maison de cacao, faisant de la coupe un geste que je porte de mes mains.
+> **③ PAR QUEL CANAL** — Nino le ministre (la version froide et vraie) · Demetrio le cousin (la version brutale, qui me coûtera) · l'évêque, qui peut bénir une austérité et endormir l'île · Lemos, mon contractant, dont la seule présence à mes côtés est déjà une menace adressée à ceux que je prive · ou moi-même, montant enfin à la maison de cacao, faisant de la coupe un geste que je porte de mes mains.
 >
 > **④ À QUEL DÉLAI** — *maintenant* (trancher avant que le bruit de la flamme éteinte ne se répande) · *à l'instant juste* (laisser le trimestre filer encore un peu, gagner une lune, au risque que le trou se voie) · *jamais* (ne rien décider, laisser la mer décider à ma place — et la mer, elle, a déjà commencé à éteindre ses feux).
 
@@ -122,7 +122,7 @@ Nino a repris sa feuille. Quelque part dans Malabo, ma mère a tiré une aiguill
 - **La flamme éteinte** — premier signe public du déclin ; qui d'autre l'a vu du hublot ?
 - **La malle sous la housse** — toujours fermée. *DOSSIER MARFIL.*
 - **Aurelito**, le fond glacé dans le rire du fils → ouverture de la **Temporada II**.
-- **Shen**, pas encore entré en scène, déjà la seule porte qui ne fait crier personne — et la plus chère.
+- **Liang**, pas encore entré en scène, déjà la seule porte qui ne fait crier personne — et la plus chère.
 
 ---
 

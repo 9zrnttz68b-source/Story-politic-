@@ -55,10 +55,10 @@ La pluie chaude et verticale de Bioko ; l'odeur du **cacao en fermentation** ; l
 
 Notre saga garde **toute la géographie et le réel** ci-dessus, mais remplace la dynastie réelle par une **dynastie inventée, les Bindang**, et diverge sur des points précis :
 
-- **Le Fondateur** n'est pas Macías mais **Saturnino Bindang** (même *fonction* dramatique : le tyran fondateur, le massacre, l'occulte, renversé par son neveu).
-- **Le protagoniste** n'est pas Obiang mais **Anatolio Eyí Bindang, « el Faro »** — neveu qui a renversé le Fondateur et fut, avant cela, son **gardien de prison** (la part « instrument du monstre »). **Divergence majeure inventée :** el Faro est **à moitié bubi** par sa mère (Mamá Puri), ce qui le rend illégitime aux yeux de l'élite fang et fait de lui *le geôlier du peuple de sa propre mère*. Ce métissage est une **pure invention dramatique**, pas un trait du réel.
+- **Le Fondateur** n'est pas Macías mais **Saturnino Bindang** (même *fonction* dramatique : le tyran fondateur, le massacre, l'occulte, renversé en 1979 par une faction de la famille).
+- **Le protagoniste** n'est pas Obiang mais **Anatolio Eyí Bindang, « el Faro »** — **neveu du Fondateur, mais il n'a pas fait le coup d'État** : en 1979, il n'avait que dix-sept ans ; ce sont **les hommes de son père** qui ont renversé et fusillé l'oncle. Anatolio est monté bien plus tard, **de l'intérieur**, par la voie du pétrole, jusqu'à prendre le sommet (vers 2006). Il est donc l'**héritier d'une usurpation** qu'il n'a pas commise — ce qui nourrit sa culpabilité la plus lâche (« j'avais dix-sept ans, j'ai les mains propres ») et la part « instrument du monstre » (son secret de 1979 : *voir DOSSIER PLAYA NEGRA*). **Divergence majeure inventée :** el Faro est **à moitié bubi** par sa mère (Mamá Puri), ce qui le rend illégitime aux yeux de l'élite fang et fait de lui *le geôlier du peuple de sa propre mère*. Ce métissage est une **pure invention dramatique**, pas un trait du réel.
 - **L'héritier** n'est pas Teodorín mais **Aurelio « Aurelito » Bindang** (même fonction : l'héritier doré et vide — mais notre fiction y ajoute la *cruauté du Fondateur qui ressurgit*, ce qui est inventé).
-- **Le complot mercenaire** type « Wonga » devient, dans la saga, la menace permanente incarnée par **De Wet**, le contractant de sécurité.
+- **Le complot mercenaire** type « Wonga » devient, dans la saga, la menace permanente incarnée par **Lemos**, le contractant de sécurité.
 - **La capitale-forteresse de la jungle**, le **déclin pétrolier**, le **créancier chinois**, l'**exil de Madrid** : repris tels quels du réel.
 
 > **Règle d'or pour l'écrivain :** tout ce qui touche au *pays* (géo, histoire générale, mécanismes du pétrole, sociologie) peut s'écrire au plus près du réel ; tout ce qui touche aux *personnes nommées de la saga* est inventé et libre. Ne jamais prêter à une personne réelle nommée un acte fictif ; prêter les actes fictifs aux Bindang.
@@ -71,7 +71,7 @@ Notre saga garde **toute la géographie et le réel** ci-dessus, mais remplace l
 
 ### LE CERCLE DU SANG
 
-**Anatolio Eyí Bindang — « el Faro » (le protagoniste).** *Voir `personnages/el_faro.md`.* Rappel du nœud : il a renversé et fait fusiller son oncle le Fondateur, dont il fut d'abord le gardien de prison ; il porte le nom du monstre et craint d'en porter le sang ; moitié bubi, il dirige la machine fang qui écrase le peuple de sa mère.
+**Anatolio Eyí Bindang — « el Faro » (le protagoniste).** *Voir `personnages/el_faro.md`.* Rappel du nœud : il n'a **pas** renversé son oncle le Fondateur — il avait dix-sept ans en 1979, ce sont les hommes de son père qui l'ont fait ; lui a hérité du trône bien plus tard, par le pétrole et la patience. Il porte le nom du monstre et craint d'en porter le sang ; il se croit les mains propres « parce qu'il avait dix-sept ans » et a pourtant aimé et perfectionné le trône bâti sur le cadavre ; moitié bubi, il dirige la machine fang qui écrase le peuple de sa mère.
 
 **Saturnino Bindang — « el Viejo », le Fondateur (mort).**
 - *Qui.* L'oncle. L'architecte du massacre de l'indépendance, mort fusillé, mémoire interdite et omniprésente. On chuchote qu'il « regarde » encore, qu'il gardait des reliques dans une malle.
@@ -110,7 +110,7 @@ Notre saga garde **toute la géographie et le réel** ci-dessus, mais remplace l
 **Demetrio Asumu — le cousin de sang pur, chef de la garde.**
 - *Qui.* Fang intégral, brutal, dévot du clan, commande la garde présidentielle et les services. Il murmure que le demi-Bubi n'a jamais été légitime.
 - *Blessure/contradiction.* Vrai croyant du sang et de la force ; il se voit comme le seul *vrai* Bindang, fidèle au Fondateur. Sa loyauté à la dynastie passe par le projet de la débarrasser de son chef.
-- *Veut / craint.* Le pouvoir « propre » d'un homme de sang pur. Il craint De Wet (qu'il ne contrôle pas) et l'idée que l'argent, pas les armes, fasse désormais les rois.
+- *Veut / craint.* Le pouvoir « propre » d'un homme de sang pur. Il craint Lemos (qu'il ne contrôle pas) et l'idée que l'argent, pas les armes, fasse désormais les rois.
 - *Croise el Faro.* Le couteau le plus proche de la nuque ; indispensable et mortel.
 - *Levier de jeu.* L'utiliser comme **canal** (réprimer par Demetrio) renforce **La Digue/El Faro** mais nourrit sa propre montée — il devient l'arme qui se retourne.
 
@@ -155,21 +155,21 @@ Notre saga garde **toute la géographie et le réel** ci-dessus, mais remplace l
 
 ### LES PUISSANCES ÉTRANGÈRES
 
-**De Wet — el contratista (sécurité étrangère).**
-- *Qui.* Ex-soldat d'élite (Afrique australe), courtois, glacé, commande la sécurité du palais, des plateformes, des convois. Mémoire vivante de tous les Wonga coups du golfe.
+**Lemos — el contratista (sécurité étrangère).**
+- *Qui.* Ancien officier d'élite reconverti dans le privé, lusophone, rompu aux côtes du golfe ; courtois, glacé, commande la sécurité du palais, des plateformes, des convois. Mémoire vivante de tous les Wonga coups de la région.
 - *Blessure/contradiction.* Soldat sans drapeau, fidèle au contrat tant que le contrat paie ; il méprise ceux qu'il protège.
 - *Veut / craint.* Être payé, et sortir avant l'effondrement. Il craint de choisir le mauvais camp un jour de trop.
 - *Croise el Faro.* La main qui le protège est exactement celle qui, dans ce golfe, sait ouvrir une porte de l'intérieur.
 - *Levier de jeu.* Le **pouvoir supérieur n°1**. Sa loyauté est une jauge invisible ; le jour où l'argent manque, il devient l'arme du complot.
 
-**M. Shen — l'envoyé du créancier (Pékin).** *(développé)*
+**Le conseiller Liang — l'envoyé du créancier (Pékin).** *(développé)*
 - *Qui.* Officiellement « conseiller » de la dette et des chantiers (capitale, routes, port) ; réellement la main longue qui présente, en souriant, l'addition en barils et en complaisances.
 - *Veut / craint.* Sécuriser l'accès aux ressources et au littoral ; patient, il ne craint presque rien — il représente plus grand que lui.
-- *Levier de jeu.* Le **pouvoir supérieur n°2** : ce que les ministres ressentent face à el Faro, el Faro le ressent face à Shen.
+- *Levier de jeu.* Le **pouvoir supérieur n°2** : ce que les ministres ressentent face à el Faro, el Faro le ressent face à Liang.
 
-**Walker — le pétrolier américain.** *(personnage neuf)*
-- *Qui.* Cadre d'une major, l'ancien monde, celui des années fastes du brut. Il plie bagage à mesure que les champs s'épuisent.
-- *Veut / craint.* Sortir proprement, sans scandale ni passif. Il craint Washington (sanctions, anticorruption) plus qu'el Faro.
+**Vasseur — le pétrolier (major européenne).** *(personnage neuf)*
+- *Qui.* Cadre d'une grande compagnie européenne, l'ancien monde, celui des années fastes du brut. Il plie bagage à mesure que les champs s'épuisent.
+- *Veut / craint.* Sortir proprement, sans scandale ni passif. Il craint les sièges et les juges occidentaux (sanctions, anticorruption) plus qu'el Faro.
 - *Levier de jeu.* Son départ = signal de fin du cycle pétrolier ; le retenir, c'est jouer **El Crudo** contre **El Faro** (la réputation).
 
 **Severino Mañé — la voix de Madrid (l'exil).** *(développé)*
@@ -219,8 +219,8 @@ Notre saga garde **toute la géographie et le réel** ci-dessus, mais remplace l
 
 - **DOSSIER MARFIL — « la malle du Vieux ».** Inventaire (réel ? falsifié ?) de ce que gardait le Fondateur : reliques, listes de noms, un cahier. Ouvre la question de l'occulte et de la **Maldición**.
 - **DOSSIER ZAFIRO-9 — les comptes du bloc offshore.** Production réelle vs déclarée ; la courbe du déclin que Nino Mba cache. Cœur de la jauge **El Crudo**.
-- **DOSSIER OPALE — le contrat De Wet.** Clauses de sécurité, lignes de défense du palais, *et* la clause de sortie : ce que De Wet peut faire si on cesse de payer.
-- **DOSSIER PLAYA NEGRA — les années de la prison.** Ce qu'el Faro a fait, jeune, comme gardien du Fondateur. Son **secret enfoui** ; détruit ou exhumé, il change tout.
+- **DOSSIER OPALE — le contrat Lemos.** Clauses de sécurité, lignes de défense du palais, *et* la clause de sortie : ce que Lemos peut faire si on cesse de payer.
+- **DOSSIER PLAYA NEGRA — 1979, le garçon de dix-sept ans.** Non pas ce qu'il aurait fait *pour* le Fondateur (il était trop jeune), mais ce qu'il a **vu, ou été contraint de faire**, dans les semaines où la faction de son père vidait les prisons de l'oncle renversé : un nom qu'il aurait désigné, une signature qu'on lui aurait fait poser, un silence acheté à un enfant. Son **secret enfoui** — la fêlure de ses « mains propres ». Détruit ou exhumé, il change tout.
 - **DOSSIER MADRID — le réseau de l'exil.** Qui parle à Severino Mañé, qui le finance, où passe la frontière entre opposition légitime et complot mercenaire.
 - **DOSSIER ANNOBÓN — l'île oubliée.** Le bout du pays que personne ne regarde : utile comme lieu d'exil intérieur, de relégation, ou de refuge secret.
 - **DOSSIER CACAO — la maison de Mamá Puri.** Acte de propriété, photographies, le nom bubi de l'enfant. La pièce intime ; la jauge **La Madre** matérialisée.

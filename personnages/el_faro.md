@@ -32,7 +32,7 @@ Son nom d'état civil, dans un registre de mission catholique de Bioko, est **An
 
 *Anatolio* — « le levant », l'orient, le soleil qui se lève — nom donné par une religieuse espagnole à un enfant né sur une île de l'ouest, face à un océan où le soleil ne fait que se coucher. Il porte un nom d'aube sur une terre de couchant. Toute sa vie il a essayé de paraître un commencement alors qu'il était une suite.
 
-*Bindang* : le nom de la dynastie. Le nom du Fondateur. Son oncle. Anatolio n'a pas fait le pays ; il a hérité du pays *et* du nom *et* du cadavre. C'est sa première et plus lourde vérité : **il règne sous le nom de l'homme qu'il a lui-même abattu, et chaque jour il signe ce nom-là en bas des décrets.** Le neveu qui a tué l'oncle pour arrêter le monstre, et qui doit porter le nom du monstre comme une seconde peau, comme un diagnostic.
+*Bindang* : le nom de la dynastie. Le nom du Fondateur. Son oncle. Anatolio n'a pas fait le pays ; il a hérité du pays *et* du nom *et* du cadavre. C'est sa première et plus lourde vérité : **il règne sous le nom de l'homme que les siens ont abattu quand lui n'avait que dix-sept ans, et chaque jour il signe ce nom-là en bas des décrets.** Trop jeune pour le coup — ce sont les hommes de son père qui ont renversé l'oncle —, il n'a même pas l'effroyable dignité d'avoir tué le monstre : il est seulement l'héritier d'une usurpation, le garçon qui a recueilli, des années plus tard, le trône encore tiède, et qui doit porter le nom du monstre comme une seconde peau, comme un diagnostic.
 
 Et il y a un troisième nom, qu'aucun document ne contient. Sa mère l'appelait autrement. Deux syllabes douces dans la langue de l'île, un mot bubi qui voulait dire à peu près *le petit qui est venu tard*. Personne ne l'a entendu prononcer depuis quarante ans. C'est le nom de l'homme qu'il aurait pu être s'il était resté sur l'île, du côté de sa mère, du côté des vaincus.
 
@@ -62,9 +62,9 @@ Quand le sommet se libère — par l'usure, la maladie, la mécanique opaque d'u
 
 Il gouverne vingt ans. Il fait du pays une vitrine : tours de verre dans la jungle, sommets internationaux, footballeurs et chanteurs payés pour venir, son visage sur les pièces, son visage sur les murs, « el Faro » partout. Il dose le culte avec le même mépris lucide que le Turkmène : il sait que le portrait géant n'est pas là pour être aimé, mais pour que chacun sache que l'autre le surveille. Le culte est une caméra peinte.
 
-Mais il a une terreur que le Turkmène n'avait pas. Le Turkmène craignait d'être démasqué comme imposteur. Lui craint d'être démasqué comme **héritier** — au sens biologique. La nuit, il se demande si la chose qu'il a vue à six ans dans la maison du continent n'est pas une maladie qui dort dans le sang des Bindang, et s'il ne la sent pas, parfois, remonter en lui : une froideur nouvelle, un plaisir bref et glaçant quand un ennemi tombe, une facilité grandissante à signer la colonne de droite sans la regarder. Il a fait fusiller l'oncle pour arrêter le monstre. Et si le monstre n'était pas un homme, mais un **nom** — et qu'il l'eût hérité avec le nom ?
+Mais il a une terreur que le Turkmène n'avait pas. Le Turkmène craignait d'être démasqué comme imposteur. Lui craint d'être démasqué comme **héritier** — au sens biologique. La nuit, il se demande si la chose qu'il a vue à six ans dans la maison du continent n'est pas une maladie qui dort dans le sang des Bindang, et s'il ne la sent pas, parfois, remonter en lui : une froideur nouvelle, un plaisir bref et glaçant quand un ennemi tombe, une facilité grandissante à signer la colonne de droite sans la regarder. Ce n'est pas lui qui a fait fusiller l'oncle — il avait dix-sept ans, ce furent les hommes de son père —, mais il a pris, plus tard, le trône bâti sur ce cadavre ; il l'a aimé ; il l'a perfectionné. Et si le monstre n'était pas un homme, mais un **nom** — et qu'il l'eût hérité avec le nom ?
 
-> *Sa phrase privée, jamais dite : « Je n'ai pas tué le Vieux. Je l'ai mis en attente. Il habite dans mon nom et il regarde par mes yeux quand je suis fatigué. »*
+> *Sa phrase privée, jamais dite : « Je n'ai pas tué le Vieux ; d'autres l'ont fait pour moi, et j'étais trop jeune pour qu'on me le reproche. J'ai seulement gardé sa place au chaud. Il habite dans mon nom et il regarde par mes yeux quand je suis fatigué. »*
 
 ---
 
@@ -123,7 +123,7 @@ L'étau réel de 2026 — c'est ici qu'entre le très-haut-réalisme :
 
 - **El Obispo et el morimó — les deux prêtres.** L'évêque catholique espagnol (l'Église de sa mère, la légitimité morale, le pardon ou l'excommunication) et le babalawo fang (la langue de l'occulte, la malle, le pouvoir-dette du Vieux). Entre eux, déchiré, l'homme qui ne sait pas en quoi il croit mais sait qu'il a peur. **Les miroirs de ses deux moitiés métaphysiques.**
 
-- **De Wet — el contratista.** Ex-soldat étranger, courtois, efficace, qui commande la sécurité du palais et des plateformes. Toujours rassurant. Le seul homme qu'el Faro ne peut ni acheter tout à fait, ni effrayer, ni remplacer sans s'exposer. **Le miroir du pouvoir supérieur au sien** — et la main qui, dans ce golfe, a déjà su ouvrir des portes de l'intérieur.
+- **Lemos — el contratista.** Ex-soldat étranger, courtois, efficace, qui commande la sécurité du palais et des plateformes. Toujours rassurant. Le seul homme qu'el Faro ne peut ni acheter tout à fait, ni effrayer, ni remplacer sans s'exposer. **Le miroir du pouvoir supérieur au sien** — et la main qui, dans ce golfe, a déjà su ouvrir des portes de l'intérieur.
 
 - **Milena — la fille partie.** Sa fille, à Madrid, qui ne l'accuse pas et ne le défend pas : elle s'est tue, elle a disparu dans une vie ordinaire européenne. **Le miroir du verdict silencieux** : la seule personne dont l'indifférence lui fait plus mal que n'importe quelle haine.
 
@@ -146,7 +146,7 @@ Une partie est une **temporada** (une saison). Les conséquences mûrissent comm
 - **La Maldición** *(cachée, lue par le seul narrateur)* — l'écart entre l'homme et le Fondateur : mesure à quel point le Vieux a « remonté » en lui. Elle ne change pas ce qu'il fait ; elle change le **ton** de la fin — un homme qui a fait des choix, ou un sang qui a gagné.
 
 ### 3. Modalités de choix élevées — *quatre registres + un*
-Comme pour le Penakär : **le geste** (quoi), **le canal** (par qui : Demetrio le brutal, Eusebio l'insulaire, De Wet l'étranger, l'évêque, le silence), **le délai** (maintenant / à l'instant juste / jamais). Et le masque (sincère, feint, ambigu).
+Comme pour le Penakär : **le geste** (quoi), **le canal** (par qui : Demetrio le brutal, Eusebio l'insulaire, Lemos l'étranger, l'évêque, le silence), **le délai** (maintenant / à l'instant juste / jamais). Et le masque (sincère, feint, ambigu).
 
 Mais cet homme a un cinquième registre que l'autre n'avait pas — **el Rostro**, *par quelle autorité il agit*, parce qu'il a trois visages :
 - **el Presidente** — il tranche en homme moderne, par la loi, le décret, le chiffre, la respectabilité internationale ;
@@ -159,7 +159,7 @@ Mais cet homme a un cinquième registre que l'autre n'avait pas — **el Rostro*
 Le moteur garde trace, à chaque scène, du visage choisi. Un règne mené surtout en *Presidente* et en *Madre* marche vers les fins « hautes » mais vit en danger permanent ; un règne mené en *Patriarca* et *Heredero* achète la survie en payant, pièce par pièce, l'âme — jusqu'à la fin où le narrateur cesse d'écrire « Anatolio » et écrit « Bindang ».
 
 ### 5. Les arcs (temporadas)
-- **Temporada I — *El crudo se acaba.*** L'argent se tarit ; austérité dans une cour vorace ; le créancier de Pékin ; couper la rente du clan ou le pain de la rue. Introduit el Crudo, La Sangre, De Wet.
+- **Temporada I — *El crudo se acaba.*** L'argent se tarit ; austérité dans une cour vorace ; le créancier de Pékin ; couper la rente du clan ou le pain de la rue. Introduit el Crudo, La Sangre, Lemos.
 - **Temporada II — *La sangre.*** La succession ; Demetrio le pur, Aurelio le doré où reparaît le Vieux ; à qui, et au prix de quoi.
 - **Temporada III — *La isla.*** L'île, les Bubi, Mamá Puri, Eusebio ; la reddition de comptes métaphysique ; l'évêque et le babalawo ; la part qui aime les vaincus contre la part qui les écrase.
 - **Temporada IV — *El faro se apaga.*** Tout converge : un complot venu de la mer, un cœur qui flanche, l'héritier, l'addition du créancier, l'île contre la forêt. La somme des choix ne décide pas *s'il tombe* — tout pouvoir tombe — mais **si la malédiction se transmet** : le Vieux renaît-il dans le fils, ou la chaîne se brise-t-elle, et à quel prix ?
