@@ -118,6 +118,35 @@ Il est, en 2026, un homme doux et lucide au sommet d'un État qui peut le destit
 
 ---
 
+## V-bis. APPROFONDISSEMENTS & NOUVEAUX MIROIRS
+
+> Pour fuir l'archétype plus loin encore : l'homme de vérité a, lui aussi, ses contrebandes — un mot qui a tué, un ami qu'il ne peut pas avouer, une foi qu'il mime.
+
+### Couches supplémentaires de la bio
+
+**Le mot qui a trahi.** Avant la politique, traduisant un document — un accord, un poème, une lettre —, il a un jour rendu un mot par un autre, et ce glissement a coûté : une brouille, une rupture, peut-être pire. Lui, dont le credo est « nommer juste sauve », porte la preuve intime que **mal nommer tue**, et que c'est arrivé par sa main. Tout son rapport au pouvoir est une tentative de racheter cette virgule-là.
+
+**Le frère d'encre de l'autre rive.** Depuis vingt ans, il correspond en secret avec un homme de lettres **azerbaïdjanais**, poète et traducteur de Bakou — le seul être au monde qui le comprenne entièrement, parce qu'il est son reflet exact de l'autre côté de la ligne. Leur amitié est sa plus haute intimité et sa pire trahison possible : aimer, dans l'ennemi, le frère. L'intime d'un traducteur est, par nature, de l'autre côté.
+
+**La foi qu'il mime.** Diaspora laïque devant une nation orthodoxe brûlante, il accomplit les gestes d'Etchmiadzine sans y croire — et s'aperçoit, certains jours, qu'il *voudrait* y croire, et que ce désir de foi est plus déchirant que la foi ou que l'incroyance.
+
+### Nouveaux miroirs
+
+**Vüqar Səlimli — le frère de l'autre rive.**
+- *Qui.* Poète et traducteur de Bakou, correspondant secret de Vahé depuis vingt ans. Sur la place publique, leurs nations s'entretuent ; dans leurs lettres, ils s'achèvent l'un l'autre des vers.
+- *Blessure/contradiction.* Si la chose se savait, chacun serait, chez lui, un traître. Ils portent, ensemble, la preuve qu'on pouvait être autre chose qu'ennemis — et l'impossibilité de le dire.
+- *Levier de jeu.* La jauge **La Traduction** incarnée : la paix passe peut-être par cette amitié clandestine, ou s'y brise.
+
+**Knar Tarverdyan — la gardienne des mots.**
+- *Qui.* Éditrice qui a publié *La Maison sans toit* et qui, à contrecœur, dirige désormais sa communication.
+- *Blessure/contradiction.* Elle a fait l'écrivain ; elle regarde, impuissante, sa langue devenir slogan, et se demande si elle protège sa voix ou si elle la liquide.
+- *Levier de jeu.* La jauge **La Voix** ; la dernière à pouvoir lui dire qu'une phrase sonne faux.
+
+**Tatev — la déracinée.**
+- *Qui.* Femme du Karabakh, jetée sur les routes par l'exode de 2023, vivant dans un foyer d'Erevan ; visage réel de ce que Vahé négocie.
+- *Blessure/contradiction.* Elle n'accuse pas ; elle attend. Son silence pèse plus que tous les cris de la diaspora.
+- *Levier de jeu.* La plaie qu'il traduit, faite personne ; chaque concession au corridor passe, en vrai, par elle.
+
 ## VI. LE JEU — ARCHITECTURE DE « NIVEAU SUPÉRIEUR »
 
 Pour la première fois de la galerie, **le pouvoir n'est pas absolu** : il est élu, temporaire, contesté. Le moteur change de nature — non plus *garder* le pouvoir, mais *traduire* sans trahir, dans un temps compté.

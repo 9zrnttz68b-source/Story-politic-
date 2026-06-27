@@ -119,6 +119,35 @@ L'étau réel de 2026 — c'est ici qu'entre le très-haut-réalisme :
 
 ---
 
+## V-bis. APPROFONDISSEMENTS & NOUVEAUX MIROIRS
+
+> Pour fuir l'archétype plus loin encore : l'homme de fer obéit, en secret, à des forces qu'il ne maîtrise pas, et paie une dette qu'il ne dira jamais.
+
+### Couches supplémentaires de la bio
+
+**L'almanach.** L'homme du contrôle total est, en secret, gouverné par les astres. Il n'agit pas un jour défavorable ; il consulte un almanach ; il reporte une signature, une offensive, une arrestation pour une mauvaise conjonction. La digue obéit, dans l'ombre, à un ciel qu'elle ne tient pas. Contrôle absolu au-dehors, soumission totale au destin au-dedans.
+
+**La réparation secrète.** Depuis quarante ans, par des intermédiaires, il fait vivre **une seule famille** : celle d'un homme qu'à seize ans il a désigné à l'Angkar. Une pension qui ne dit pas son nom, versée à des gens qui en ignorent la source. Sa conscience et sa pièce la plus dangereuse à la fois — le fil qui, remonté, mène au canal de 1976. Le bourreau qui entretient, sa vie durant, la veuve de sa victime.
+
+**Le sommeil sur l'eau.** Il ne dort pas depuis 1976 — sauf sur l'eau. Une nuit par mois, sur une barque, au milieu du lac, il dort enfin : le seul lieu que l'Angkar n'atteint pas dans ses rêves. Or le lac meurt. Quand le lac sera sec, il ne dormira plus jamais. L'écologie qui assassine son unique refuge intime.
+
+### Nouveaux miroirs
+
+**L'achar Sambath Khoeun — l'astrologue de cour.**
+- *Qui.* Vieux devin du palais, lecteur des jours ; le seul homme qui puisse faire reculer le Samdech d'un mot — « le jour est mauvais ».
+- *Blessure/contradiction.* Il tient un pouvoir qu'aucun ministre n'a (il décide *quand*) ; mais il ne sait plus s'il croit encore, ou s'il est devenu un charlatan indispensable que terrifie l'idée qu'une de ses prédictions tue.
+- *Levier de jeu.* La fatalité sous le contrôle ; il peut retarder une décision d'État au nom d'une conjonction.
+
+**La daun chi Lakhena — la sœur.**
+- *Qui.* Religieuse en blanc, sœur survivante de l'Année zéro, la seule vivante qui ait connu le garçon **Sophal** *avant* le brassard.
+- *Blessure/contradiction.* Elle refuse son argent, son pouvoir, et le regarde avec une **pitié** qui le ravage plus que toute haine ; elle pourrait dire qui il fut à seize ans, et se tait — par compassion, non par peur, ce qui est pire.
+- *Levier de jeu.* Le **Nom** perdu ; la vérité qui pardonne sans absoudre.
+
+**Phalla — la fille de la réparation.**
+- *Qui.* Petite-fille de l'homme qu'il a désigné en 1976, élevée toute sa vie par un argent dont elle ignore l'origine ; devenue infirmière, elle entre — sans le savoir — dans l'orbite du palais.
+- *Blessure/contradiction.* Elle incarne, vivante et ignorante, la dette de sang du Samdech ; sa simple présence est une bombe à retardement morale.
+- *Levier de jeu.* Le fil vivant du **DOSSIER CANAL-76** ; la protéger, l'éloigner, ou — vertige — lui dire.
+
 ## VI. LE JEU — ARCHITECTURE DE « NIVEAU SUPÉRIEUR »
 
 Même promesse, troisième variation : pas plus de puissance, plus de **résolution** — et un registre de choix propre à un homme qui gouverne par la mémoire.

@@ -111,6 +111,35 @@ Il est, en 2026, un homme jeune et génial au sommet d'un studio à l'échelle d
 
 ---
 
+## V-bis. APPROFONDISSEMENTS & NOUVEAUX MIROIRS
+
+> Pour fuir l'archétype plus loin encore : l'homme tout en surface garde une œuvre que personne ne verra, une infirmité qu'il a montée au noir, et un deuil qu'il a refusé de poster.
+
+### Couches supplémentaires de la bio
+
+**Le film que personne ne verra.** Le maître du flux monte, dans une salle privée, un seul film qu'il ne diffusera jamais : le **vrai** — celui du garçon de Peć, taillé dans les cassettes du père, le montage de l'enfant d'avant l'image. L'homme qui fabrique tout pour les écrans façonne en secret l'unique œuvre destinée à aucun. Sa seule création sincère est invisible — donc, peut-être, la seule vraie.
+
+**Le bégaiement.** Enfant réfugié, moqué, il **bégayait**. La performance l'a guéri : l'orateur le plus fluide du pays fut un gosse incapable de finir une phrase. Mais sous la pression extrême — un deuil, un direct qui dérape, une question qu'il n'a pas scénarisée — le bégaiement remonte, à un battement de cil de revenir. Chaque direct est un fil tendu au-dessus du mutisme d'avant.
+
+**Le deuil non montable.** Une mort, dans sa vie — le père —, est la seule chose dont il n'a jamais fait de contenu. Il a tout posté, tout monétisé, sauf ce cercueil-là. C'est, dans toute son existence, le seul hors-champ qu'il ait spontanément respecté — la preuve qu'il reste, quelque part en lui, une chose qu'il tient pour sacrée.
+
+### Nouveaux miroirs
+
+**Smiljana — la mère.**
+- *Qui.* Veuve réfugiée du Kosovo, restée dans la petite ville du sud, qui n'a jamais accepté ni l'exil ni ce qu'est devenu son fils. Elle garde la **clé de la maison de Peć** — une clé qui n'ouvre plus rien, derrière une frontière fermée.
+- *Blessure/contradiction.* Elle dit encore le nom d'avant l'image ; sa fierté et sa honte de lui se disputent dans le même regard.
+- *Levier de jeu.* **Le Garçon** et la perte réelle ; le seul être devant qui le Reditelj ne sait pas jouer.
+
+**Dunja Vukotić — la monteuse.**
+- *Qui.* Jeune monteuse personnelle, les mains qui coupent le mythe image par image ; elle a vu les rushes du garçon et connaît l'écart exact entre le réel et le diffusé.
+- *Blessure/contradiction.* Technicienne du mensonge et, pour cela, témoin la plus dangereuse ; elle l'admire et le méprise dans le même geste de montage.
+- *Levier de jeu.* **Le Hors-champ** ; elle tient, sur ses disques, et le rush brut et la version montée.
+
+**Nevena — la diva.**
+- *Qui.* Reine du turbo-folk, visage féminin du spectacle, compagne intermittente ; elle comprend la performance aussi profondément que lui.
+- *Blessure/contradiction.* Seule, elle le rencontre d'égal à égal dans le palais des miroirs — l'intimité de masse à deux, et donc la solitude redoublée : deux gens qui *savent* et ne peuvent l'avouer qu'à l'autre.
+- *Levier de jeu.* **L'Audience** faite chair ; alliance de spectacle, et le seul lien qui ressemble, de loin, à de l'amour.
+
 ## VI. LE JEU — ARCHITECTURE DE « NIVEAU SUPÉRIEUR »
 
 Pour la première fois, un homme fort dont l'arme n'est ni la peur ni le récit, mais l'**attention** — un pouvoir réel mais hybride, contesté, jamais total. Le moteur : tenir le spectacle pendant que le réel (la mort, le deuil, la bande brute) ne cesse de le crever.

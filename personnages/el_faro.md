@@ -129,6 +129,35 @@ L'étau réel de 2026 — c'est ici qu'entre le très-haut-réalisme :
 
 ---
 
+## V-bis. APPROFONDISSEMENTS & NOUVEAUX MIROIRS
+
+> Pour fuir l'archétype plus loin encore : sous le froid, des poches de chaleur mal placées, et des secrets qui ne sont pas ceux qu'on attend.
+
+### Couches supplémentaires de la bio
+
+**L'oreille tendre.** Le Phare, l'homme froid, garde un plaisir que nulle caméra ne filme : la nuit, seul, il écoute les **boléros** et les chants bubi de l'île — la musique douce des vaincus, celle du peuple de sa mère qu'il écrase le jour. Il la fait jouer en sourdine ; parfois il la joue lui-même, mal, à la guitare. Le marbre a une oreille molle.
+
+**La langue qui s'efface.** Enfant, il parlait le bubi de sa mère. Chaque année de règne fang lui en retire des mots. Il tient un **carnet** où il note les termes qu'il se rappelle encore — un lexique de son moi qui s'éteint — et il a remarqué, avec terreur, que le carnet maigrit. Il colonise le peuple de sa mère jusque dans sa propre bouche.
+
+**La mémoire réécrite.** À force de se répéter, depuis quarante ans, qu'à dix-sept ans il « n'a rien fait », il a **réécrit le souvenir** de 1979 par-dessus l'événement. Ses mains propres sont peut-être le plus ancien et le plus réussi de ses mensonges d'État — celui qu'il s'est fait à lui-même, jusqu'à ne plus savoir ce qui eut lieu.
+
+### Nouveaux miroirs
+
+**Sabino Vivour — le vieux des boléros.**
+- *Qui.* Fernandino aveugle de Malabo, guitariste, dernier dépositaire des chansons de l'île et des vieux boléros. El Faro le fait venir, seul, et l'écoute des heures.
+- *Blessure/contradiction.* Le seul homme du pays qui donne au Phare quelque chose (de la musique) sans rien attendre du robinet — et qui ne sait pas, ou feint de ne pas savoir, qui il est.
+- *Levier de jeu.* **La Madre** ; la douceur interdite, le seul lieu où le froid fond.
+
+**Evaristo Bacale — l'homme des dossiers.**
+- *Qui.* Chef silencieux du renseignement, fang, sans appétit visible, qui sert *la chaise* et non l'homme. Il sait tout de tous — y compris ce qui dort dans le **DOSSIER PLAYA NEGRA**.
+- *Blessure/contradiction.* Il ne menace jamais ; sa loyauté est une énigme, donc une arme. On ne sait pas s'il garde le secret de 1979 pour protéger el Faro ou pour le tenir.
+- *Levier de jeu.* La surveillance intérieure et la fêlure des « mains propres » ; le seul homme dont el Faro, le maître de la peur, a peur.
+
+**Restituta Bibang — la directrice de l'image.**
+- *Qui.* Formée en Europe, elle fabrique et entretient « el Faro », la marque ; elle écrit les discours, choisit les angles, polit le Phare pour Madrid et le monde.
+- *Blessure/contradiction.* Elle voit le vide derrière la lumière mieux que personne, et continue de l'éclairer ; moderne, lucide, complice.
+- *Levier de jeu.* La jauge **El Faro** (la respectabilité) faite personne ; canal de tout ce qui se joue à l'image.
+
 ## VI. LE JEU — ARCHITECTURE DE « NIVEAU SUPÉRIEUR »
 
 Même promesse que pour le Penakär, poussée d'un cran : pas plus de puissance, plus de **résolution** — et un registre de choix supplémentaire, propre à cet homme à trois visages.

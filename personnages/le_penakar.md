@@ -123,6 +123,35 @@ Il est, en 2026, un homme au sommet d'une montagne de marbre, avec un cœur qui 
 
 ---
 
+## V-bis. APPROFONDISSEMENTS & NOUVEAUX MIROIRS
+
+> Pour fuir l'archétype plus loin encore : un homme fort n'est pas la somme de ses pouvoirs, mais des contradictions qu'il garde sous clé.
+
+### Couches supplémentaires de la bio
+
+**Le jardin d'essai.** L'homme qui possède toute l'eau du pays tient, dans une cour fermée, une parcelle de sable où il tente, seul, à l'aube, de faire pousser un **mûrier de Lebap** — l'arbre de la cour de son enfance, au bord de l'Amou-Daria. L'arbre meurt chaque année, malgré la meilleure terre et la meilleure eau du Turkménistan. C'est le seul endroit de sa vie où il *crée* au lieu de *distribuer*, et le seul où il échoue. Un homme qui commande des fleuves et ne sait pas faire vivre un arbre apprend là, chaque matin, une humilité qu'il refuse partout ailleurs.
+
+**L'archive du menteur.** Dans un coffre, en vieux turkmène à l'écriture arabe que nul à la cour ne déchiffre, il tient une **chronique vraie** — chaque mensonge d'État, chaque contrat truqué, chaque corps. Ni pour publier, ni pour faire chanter : une compulsion. Le cynique qui a bâti un règne sur le faux a besoin, quelque part, d'avoir dit le vrai une fois, fût-ce à personne. C'est sa prière d'athée — et la pièce qui, exhumée, le pendrait.
+
+**L'oreille qui baisse.** Il devient sourd d'une oreille, vieille séquelle jamais avouée. L'homme dont tout le pouvoir tient à saisir le moindre murmure de la cour perd l'ouïe, et vit dans la terreur du jour où il prendra une menace pour une flatterie. Il fait répéter en feignant la lassitude du puissant.
+
+### Nouveaux miroirs
+
+**La doctoresse Mähri Söýünowa — le corps.**
+- *Qui.* Cardiologue, la seule à savoir que son cœur lâche ; la seule à le toucher comme une chair et non comme un trône.
+- *Blessure/contradiction.* Elle détient le secret qui ferait tomber un régime — la date probable d'une mort — et ne sait plus si elle soigne un homme ou si elle prolonge une tyrannie.
+- *Levier de jeu.* La jauge **Cœur** faite personne ; une intimité chaste et terrible, et un secret d'État logé dans un stéthoscope.
+
+**Gylyçmyrat — le parent du fleuve.**
+- *Qui.* Cousin ersary, instituteur d'un bourg mourant de Lebap, qui vient non pour de l'argent mais pour supplier qu'on sauve l'**Amou-Daria** elle-même — le fleuve qui maigrit, le fantôme de la mer d'Aral.
+- *Blessure/contradiction.* Il est l'homme que Meretdurdy aurait été s'il était resté ; il l'appelle par son nom de rivière, le seul à oser, et porte la cause des noyés d'en bas que le robinet a oubliés.
+- *Levier de jeu.* Miroir de la **vie non vécue** ; et un risque politique réel (les villes asséchées, l'écologie qu'aucune peur ne réprime).
+
+**Le bagşy Mätäji — le barde de cour.**
+- *Qui.* Poète officiel qui compose les louanges du culte, et qui, en privé, glisse au Penakär la vérité déguisée en vers classiques — le seul homme autorisé à presque l'insulter, parce qu'il le fait en métaphore.
+- *Blessure/contradiction.* Il vend son don à la flatterie et se méprise ; sa loyauté va à la langue, pas à l'homme.
+- *Levier de jeu.* Le **Marbre** (le culte) et la vérité qui se cache dans la louange ; il peut, d'un poème, fissurer ou cimenter le mythe.
+
 ## VI. LE JEU — ARCHITECTURE DE « NIVEAU SUPÉRIEUR »
 
 Ce personnage n'est pas plus puissant en points. Il est **plus haut en résolution**. Là où les autres personnages ont trois leviers, lui en a sept, et certains s'annulent. Voici le moteur.
