@@ -65,6 +65,50 @@ Le tyran classique impose sa nuit au pays. Rouhi, lui, n'impose rien : il **rend
 
 ---
 
+## II-bis. LE PARCOURS — *formation, métiers, montée, affiliation*
+
+> Le CV d'un homme qui n'existe pas. Chaque ligne est vraie ; aucune n'a de titulaire. Et toutes, mises bout à bout, composent l'unique carrière qui mène un vide au sommet : non pas l'ambition, mais l'**accumulation de dévotions**, une à une, jusqu'à ce qu'elles fassent une marée.
+
+### 1. La formation — l'école des seuils
+
+Aucun diplôme ne porte vraiment son nom, et pourtant il a tout appris. L'orphelinat d'abord, puis les familles, puis le couvent d'**Abouna Boulos**, où l'on instruisait les enfants perdus : il y reçut une éducation de **frères** — le français des écoles chrétiennes, l'arabe classique du catéchisme et du Coran qu'il apprit ailleurs avec la même ferveur, l'anglais des manuels et plus tard des ONG. Trilingue sans effort, parce qu'une langue, pour lui, n'est pas un savoir : c'est un visage de plus à porter. Il glissait du français mondain de l'Est chrétien à l'arabe populaire de l'Ouest, du registre des cheikhs à celui des bonnes sœurs, sans la moindre couture. Les examens, il les passait quand une famille payait, les ratait quand on l'envoyait travailler ; il n'a donc, sur le papier, presque rien. Mais il avait, lui, la seule chose qui ne s'enseigne pas et qu'aucun titre ne mesure : **il savait, en entrant dans une pièce, ce qu'il fallait y devenir.** Le couvent voulut faire de lui un novice ; il fut, trois ans, le meilleur des novices, jusqu'à ce qu'Abouna Boulos, le seul à voir le vide sous la dévotion, refusât de le laisser prononcer des vœux qu'il aurait tenus trop parfaitement, et pour rien.
+
+### 2. Les métiers de l'intime — où naît la dévotion
+
+Il a fait, comme tant de Libanais déclassés, mille petits métiers ; mais il les a tous faits là où l'on est seul avec un autre, et il en sortait toujours, derrière lui, un être qui l'aimait.
+
+- **Apprenti barbier**, adolescent, dans une échoppe de la Ligne où les hommes des deux bords venaient encore se faire raser. Le fauteuil du barbier, au Levant, est un confessionnal : on y dit tout. Il écoutait en devenant chacun, et les clients revenaient pour lui, et repartaient persuadés d'avoir un ami.
+- **Chauffeur de *service*** (le taxi collectif) dans les années maigres : toute la ville monte dans la même voiture, le cheikh à côté de la couturière, et lui, au volant, devenait pour chacun le bon compagnon de route. On descendait de sa voiture réconforté sans savoir pourquoi.
+- **« Fixeur » d'un été** pour une correspondante étrangère venue couvrir le pays : il la conduisait, traduisait, et devenait à ce point ce qu'elle cherchait qu'elle écrivit, en repartant, qu'elle n'avait jamais rencontré quelqu'un d'aussi *vrai*. Elle n'avait rencontré qu'elle-même, bien éclairée.
+
+Puis le métier qui fut le sien, vraiment, vingt ans, et qui explique tout le reste : **infirmier.** Il entra à l'hôpital par la petite porte — aide-soignant, puis brevet d'infirmier obtenu sur le tard, de nuit —, et il trouva, dans les services les plus délaissés, sa vocation exacte : les **soins palliatifs.** Le chevet des mourants. Là, devant l'être le plus nu qui soit — un homme qui s'en va —, son don n'avait plus de rival : il devenait, pour chaque agonisant, la présence précise qu'il fallait pour mourir moins seul. Au chrétien il était la paix du Christ, au musulman la miséricorde, à l'athée le silence respectueux ; et à chacun il donnait une **bonne mort**, c'est-à-dire le sentiment, à la dernière heure, d'avoir été *enfin vu*. Pendant vingt ans, dans tous les hôpitaux de Beyrouth — l'Est et l'Ouest, l'Hôtel-Dieu et les dispensaires de l'autre côté —, des milliers de familles enterrèrent un mort en gardant le même nom sur les lèvres : *celui qui était là, à la fin, qui a compris.* C'est cela, la première fondation de son pouvoir : non pas une foule, mais des milliers de chevets, et autour de chaque chevet une famille, de toutes les confessions, qui lui devait l'adieu le plus doux de sa vie. Une dette d'amour, semée un mourant à la fois.
+
+### 3. Le basculement — l'effondrement, puis le port (2019-2020)
+
+Quand l'État s'effondra et que les hôpitaux n'eurent plus ni médicaments ni courant, beaucoup partirent — la grande fuite des soignants, le *japa* libanais. Lui resta. Non par héroïsme : il ne *voulait* rien, donc rien ne le poussait dehors. Il continua de tenir des mains dans des couloirs sans lumière, et sa légende, déjà, courait de quartier en quartier : l'infirmier qui n'était d'aucun bord et qui restait.
+
+Puis, le 4 août 2020, le port. La ville éventrée, Gemmayzé et Mar Mikhaël en miettes, des morts de toutes les paroisses dans la même poussière. Il fut, cette nuit-là et les mois d'après, l'un des innombrables **bénévoles** qui balayèrent le verre et rebâtirent les maisons — sauf que lui était partout, à chaque porte, et qu'à chaque porte il devenait exactement le frère dont la famille en larmes avait besoin. C'est là que l'intime devint masse : non plus un mourant à la fois, mais des quartiers entiers qui, du jour au lendemain, connaissaient « Rouhi », l'homme qui était venu, qui avait compris, qui n'avait rien demandé. Une vidéo — un vieil homme druze et une mère chrétienne le bénissant ensemble dans une rue dévastée — circula. Chacun, en la regardant, vit *son* deuil reconnu. La marée commençait.
+
+### 4. La montée — le mouvement « Kelna »
+
+Il n'a pas fondé de parti ; un homme sans confession ne le peut pas, et de toute façon il ne *fonde* rien, il ne veut rien. C'est le mouvement qui s'est formé **autour** de lui, par la simple gravité de toutes les dévotions accumulées — les familles des morts qu'il avait veillés, les quartiers qu'il avait rebâtis, les jeunes de la révolte de 2019 orphelins d'un visage propre. On l'appela **« Kelna »** — *« Nous tous »* —, retournement exact du cri de la révolte (*kellon*, « eux tous », dehors la caste) en un *kelna*, « nous tous », rassemblés autour d'un seul. Sur les listes « du changement », aux élections, son nom faisait gagner des inconnus rien qu'en figurant à côté. En quelques années, « Kelna » devint la seule force que les dix-huit communautés pouvaient soutenir sans se renier — parce qu'au centre il y avait, précisément, personne, donc tout le monde.
+
+C'est à ce moment que **Toufic Asmar**, *el-Mouallem*, entra dans sa vie. Vieux rouage de l'establishment, il comprit avant tous ce qu'aucun stratège n'avait osé rêver : un homme adoré de tous les bords et qui **ne désire rien** est le véhicule politique le plus précieux de l'Histoire — un trône vivant, qu'il suffit d'approcher pour s'asseoir dedans. Il prit « Kelna » en main : l'argent, la machine, les médias, la mise en scène discrète de la légende. Il se fit, dans chaque pièce, la volonté la plus forte. Le pays crut se donner un sauveur. Toufic, lui, savait qu'il s'offrait un fauteuil.
+
+### 5. L'affiliation — le paradoxe, et le poison
+
+Demandez son affiliation, et c'est ici que tout se renverse.
+
+**Officiellement : aucune.** Pas de confession (la case vide, l'impossible libanais), pas de parti héréditaire, pas de zaïm. C'est sa marque, son miracle, son slogan involontaire : *l'homme d'aucun camp.* Dans un pays où l'on naît étiqueté, le seul sans étiquette est devenu, par défaut, le drapeau de tous.
+
+**Officieusement : chacun le revendique.** Le patriarcat le murmure des siens ; les grandes familles sunnites jurent qu'il penche vers elles ; on dit, côté chiite, qu'il « comprend la résistance » mieux que les autres ; les druzes l'ont toujours senti de leur secret. Tous ont raison, puisque, devant chacun, il *est* des leurs. Son absence d'affiliation n'est pas un vide neutre : c'est un aimant qui attire toutes les affiliations à la fois.
+
+**Réellement — et c'est le secret de la saga :** sa seule affiliation est **Toufic**, et derrière Toufic, le **système même qu'il paraît dépasser.** Car ce sont les puissances discréditées — les banquiers qui ont volé les économies du peuple et cherchent une rédemption, deux ou trois seigneurs de guerre devenus ministres qui ont besoin d'un visage neuf, et, à l'arrière-plan, une force armée qui ne rend de comptes à personne et qui tolère tout ce qui ne la menace pas — qui financent, en secret, le sauveur « anti-système ». Telle est l'ironie monstrueuse de son parcours : **le peuple croit, à travers lui, renverser la caste ; et la caste, à travers lui, se fait aimer du peuple qu'elle a ruiné.** Rouhi est le chef-d'œuvre de l'establishment déguisé en sa propre chute. Et il ne le sait pas — parce qu'il n'a, pour le savoir, personne à l'intérieur.
+
+> *Un homme sans moi n'a pas d'affiliation : il a des propriétaires. Et le pays, en l'appelant « mon âme », croyait nommer le plus libre des hommes. Il nommait le plus possédé.*
+
+---
+
 ## III. FAILLES, OMBRES, CONTRADICTIONS
 
 Ce sont les plus singulières de toute la galerie, parce qu'elles n'appartiennent à aucun type connu.
